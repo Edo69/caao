@@ -1,2 +1,1 @@
-# caao
-caooo
+Cao drugari jebem vam mater
